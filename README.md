@@ -2,5 +2,4 @@
 - 👀 We create websites, applications and systems
 - 🌱 We are creating the best software in the market
 - 💞️ I’m looking to collaborate on AI and Generative projects
-- 📫 How to reach me trynlelimited@gmail.comick the Preview link to take a look at your changes.
---->
+- 📫 How to reach me trynlelimited@gmail.com
